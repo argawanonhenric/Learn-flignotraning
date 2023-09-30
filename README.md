@@ -1,2 +1,3 @@
 Learn@fligno
-Argawanon Jan Henric Bachelor of Engineering Technology
+
+Jan Henric Argawanon - Bachelor of Engineering Technology
