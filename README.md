@@ -1,4 +1,1 @@
-# Learn-flignotraning
-Argawanon Jan Henric
-
-stash
+Argawanon Jan Henric Bachelor of Engineering Technology
